@@ -1,0 +1,1 @@
+# naruyayoshida.github.io
